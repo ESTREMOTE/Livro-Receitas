@@ -14,6 +14,7 @@
 
 - 500 g de carne moída
 - salsinha a gosto
+- cebolinha
 
 ### PARA EMPANAR:
 
